@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-PAFB891205MCLDLR00
+PAFB891205MCLDLR00
